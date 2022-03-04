@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jacob Hoffman (@Jakeh22)
 - 👀 I’m interested in working for a Crypto project or business in the marketingm, management or operations department.
-- 🌱 I’m currently learning How to run my own business that connects artists with other artists in the muisc industry.
+- 🌱 I’m currently learning how to run my own business that connects artists with other artists in the muisc industry.
 - 📫 You can reach me at jhoffmancareers@gmail.com
 
 <!---
